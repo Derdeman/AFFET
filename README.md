@@ -1,2 +1,2 @@
-# 31
-21
+# JİNDA AFFET
+AFFET
