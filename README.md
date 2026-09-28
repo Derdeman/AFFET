@@ -1,2 +1,2 @@
-# JİNDA AFFET
+# AFFET
 AFFET
